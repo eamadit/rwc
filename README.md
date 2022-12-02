@@ -1,5 +1,8 @@
 # rwc
-Real world cryptocurrency which cannot be purchased in fiat money nor with good and services purchased in fiat money
+
+You may be the victim of optoacousic attacks combined with optogenetic attacks while reading this if the nearby devices leak enough data, please accept our apologies and take your time because this subject is the one where you always get the biggest amount of pressure.
+
+The present real world cryptocurrency cannot be purchased in fiat money nor with good and services purchased in fiat money.
 
 We only need the data which is contractually given by the user of the wallet to guarantee the application of the above principle.
 
