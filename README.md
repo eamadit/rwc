@@ -2,7 +2,7 @@
 
 You may be the victim of optoacousic attacks combined with optogenetic attacks while reading this if the nearby devices leak enough data on your context, please accept our apologies and take your time because this subject matter is the one where you always get the biggest amount of pressure.
 
-The present real world cryptocurrency cannot be purchased in fiat money nor with good and services purchased in fiat money.
+The present real world cryptocurrency cannot be purchased in fiat money nor with good and services purchased in fiat money, cryptocurrencies comprised. Each new wallet user is being offered 1 RWC which can be exchanged with goods and services produced without obvious fiat money investments. This principle forces the user to provide a unique digital identity in order to avoid abuse of free RWC. Reasonable proposals are expected to solve this problem.
 
 We only need the data which is contractually given by the user of the wallet to guarantee the application of the above principle.
 
